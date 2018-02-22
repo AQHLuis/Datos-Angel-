@@ -1,4 +1,3 @@
-# Datos-Angel-
-QHLA
+Quintero Hernández Luis Angel
 cuenta 315305801
-grupo de fundamentos 15
+angel_thquintero@hotmail.com
